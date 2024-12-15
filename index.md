@@ -1,4 +1,4 @@
 ---
-title: Fragments-of-the-Everyday
+title: Fragments of the Everyday
 ---
 
