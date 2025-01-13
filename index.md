@@ -3,8 +3,8 @@
 
 <img width="280" alt="fragments" src="https://github.com/user-attachments/assets/12c21735-0bec-4fa0-bc3a-37885b47786a" align="left" /><img height = "280" width = "300" alt= "new day" src="https://github.com/Celesti25/Clesa-Lam/blob/main/new%20day.PNG" align ="right" />
 
-<br/>
-
+<br clear="left"/>
+<br clear="right"/>
 Today may not be the most pleasurable but it is the most fulfilling I've ever encountered... especially in terms of the leaps I've taken with initially learning ability of scattering like mice chasing around dodging cheese traps. I've improved a whole lot but I need to refine my mindset and ability to still the mind. Despite initially starting wrong, I believe and know I still have the ability to correct it and make amends.
 
 I learnt a whole lot from watching others and following the process taught by my teacher. 
