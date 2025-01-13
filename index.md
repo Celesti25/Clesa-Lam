@@ -1,7 +1,7 @@
 ## Fragments of the Everyday
 ---
 
-<img width="280" alt="fragments" src="https://github.com/user-attachments/assets/12c21735-0bec-4fa0-bc3a-37885b47786a" align="left" />
+<img width="280" alt="fragments" src="https://github.com/user-attachments/assets/12c21735-0bec-4fa0-bc3a-37885b47786a" />
 
 Today may not be the most pleasurable day ever but it is actually the most fulfilling I've ever experienced in terms of acheiving small goals - especially thanking myself for the leaps I've taken... having the initial learning ability of mouse scattering in minefield of cheese traps panicking in fear. I believe I can improved in a short amount of time as long as I am committed and want things to really move forward. What is struggle with a whole lot but desperately need is to refine my mindset and ability to still the mind and being more steady. Despite initially starting wrong, I believe and know I still have the ability to correct it and make things better.
 
