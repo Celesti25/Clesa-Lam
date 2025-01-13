@@ -1,7 +1,7 @@
 ## Fragments of the Everyday
 ---
 
-<img width="350" alt="fragments" src="https://github.com/user-attachments/assets/12c21735-0bec-4fa0-bc3a-37885b47786a" align="left" /><img height = "280" width = "300" alt= "new day" src="https://github.com/Celesti25/Clesa-Lam/blob/main/new%20day.PNG" align ="right" />
+<img width="350" alt="fragments" src="https://github.com/user-attachments/assets/12c21735-0bec-4fa0-bc3a-37885b47786a" align="left" /><img height = "350" width = "350" alt= "new day" src="https://github.com/Celesti25/Clesa-Lam/blob/main/new%20day.PNG" align ="right" />
 
 <br clear="left"/>
 <br clear="right"/>
