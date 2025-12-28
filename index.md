@@ -8,4 +8,4 @@ Today may not be the most pleasurable day ever but it is actually among the most
 I learnt a whole lot from watching others and following the process taught by my teacher. 
 Though it can be really hard to tune out the inner bitchy voice designed to lull me into believing I'd inevitably fail no matter how much I believe I've prepared. There's always that sinking feeling when you think you can do it but you're really just coasting in the midst, pretending you've got it all together but practice breeds self confidence and the promises you keep to yourself in the long run builds innate trust and starves most worries and doubts but insecurity and negative thoughts keep us safe from danger so learn to be at peace with these emotions instead of avoiding them is crucial...
 
-Reflection is key to infinite levels of growth, agility and building skills to surpass even your worst enemy. 
+Reflection is key to infinite levels of growth, agility and building skills to surpass even your worst enemy and with that even your worst humiliator may end up being a fan or your follower in secret.  
